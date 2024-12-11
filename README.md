@@ -1,0 +1,1 @@
+# stoc_masini_unelte
